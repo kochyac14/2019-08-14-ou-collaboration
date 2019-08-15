@@ -6,7 +6,7 @@
 Porto Novo
  
 ## official language
-French
+French and some local languages
 
 ## interesting trivia
 more than 50 % are christians
