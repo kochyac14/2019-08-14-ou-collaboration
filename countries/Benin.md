@@ -9,6 +9,6 @@ Porto Novo
 French
 
 ## interesting trivia
-50 % are chritians
+more than 50 % are christians
 
 
